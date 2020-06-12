@@ -18,5 +18,9 @@ _Le chien demanda donc à ses maîtres les **3 voeux** qu'ils désiraient_
 
 ==Tout à coup==, un violent orage éclata. Les éclairs illuminaient le ciel noir. Brusquement, la foudre s'abattit avec force sur l'arbre près duquel tentaient de dormir le mendiant et son chien. Ils se dressèrent, sidérés par la violence de l'éclatement.
 
-Puis, l'orage s'éloigna aussi vite qu'il était venu.
+Puis, l'orage s'éloigna aussi vite qu'il était venu.Lorsque le brouillard se dissipa l'homme se mit a la recherche de sa femme et du chien qui avait eu le temps de donné son nom : proxi.
+Non loin de l'arbre, gissait au sol la femme du Monsieur et non loin de là assis en regardant le cadavre de la vielle femme le fameux proxi 
+
+L'homme compris immédiatement que quelque chose n'allait pas, au plus il se rapprochait du chien au plus les pensées de celui-ci ou je devrai dire de celle ci lui parurent clair comme si il comprennait ce que disait le chien, une fois le choc passé il se rendit compte que sa femme avait pris place dans le corps du chien.
+A côté du chien se trouvait un espèce de livre contenant ...    
 
