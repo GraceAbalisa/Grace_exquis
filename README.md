@@ -15,3 +15,8 @@ _Le chien demanda donc à ses maîtres les **3 voeux** qu'ils désiraient_
 *Leur deuxième voeux, d'avoir une fortune sans limite.*
 
 *Et leur troisième voeux fut de comprendre les lois qui permettaient à ce chien de réaliser des voeux.*
+
+==Tout à coup==, un violent orage éclata. Les éclairs illuminaient le ciel noir. Brusquement, la foudre s'abattit avec force sur l'arbre près duquel tentaient de dormir le mendiant et son chien. Ils se dressèrent, sidérés par la violence de l'éclatement.
+
+Puis, l'orage s'éloigna aussi vite qu'il était venu.
+
