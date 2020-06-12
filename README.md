@@ -9,3 +9,9 @@ _Et ce chien était magique_
 **Il avait le pouvoir de parler et excauser des voeux**
 
 _Le chien demanda donc à ses maîtres les **3 voeux** qu'ils désiraient_
+
+*Leur premier voeux fut d'accéder à __l'immortalité__.*
+
+*Leur deuxième voeux, d'avoir une fortune sans limite.*
+
+*Et leur troisième voeux fut de comprendre les lois qui permettaient à ce chien de réaliser des voeux.*
